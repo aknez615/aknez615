@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aknez615
+- 👋 Hi, I’m Alyssa
 - 👀 I’m interested in any RPG video game
 - 🌱 I’m currently learning GitHub Tutorials
 - 😄 Pronouns: She/Her
